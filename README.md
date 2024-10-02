@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FatMack1717
 - 👀 I’m interested in ... computer programing
-- 🌱 I’m currently learning ... coding
+- 🌱 I’m currently learning ... how to code
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... westcoast17blk@gmail.com
 - 😄 Pronouns: ...
